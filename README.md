@@ -14,4 +14,4 @@ I lead global engineering organizations at the convergence of complex physical s
 
 ### Reach me
 
-[🌐 jfrondeau.fr](https://jfrondeau.fr) · [💼 LinkedIn](https://www.linkedin.com/in/jean-francois-rondeau/) · [✉️ contact@jfrondeau.fr](mailto:contact@jfrondeau.fr)
+[jfrondeau.fr](https://jfrondeau.fr) · [LinkedIn](https://www.linkedin.com/in/jean-francois-rondeau/) · [contact@jfrondeau.fr](mailto:contact@jfrondeau.fr)
